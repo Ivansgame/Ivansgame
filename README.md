@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @Ivansgame
+# 👋 Hi, I’m Ivan! 
 
 ## Welcome to My Portfolio
 
