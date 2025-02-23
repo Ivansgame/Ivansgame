@@ -55,4 +55,5 @@ A manufacturing client was experiencing inefficiencies in their production line,
 ## 📞 Contact & Additional Information  
 
 📌 **LinkedIn:** [linkedin.com/in/ivanlsilva](https://linkedin.com/in/ivanlsilva)  
-📩 **Email:** [ivansilvapm@gmail.com](mailto:ivans
+📩 **Email:** [ivansilvapm@gmail.com](mailto:ivansilvapm@gmail.com)  
+📞 **Phone:** 425.280.9239  
